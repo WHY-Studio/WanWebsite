@@ -6,7 +6,7 @@
 4. [Python官网](https://python.org)
 5. [成品可执行文件](https://wan.lanzous.com/irw6xmxf4sh)
 6. -->
-7. [蓝揍云链接](https://wwe.lanzous.com/b010bbe2f?key=123456) 密码：123456
+1. [蓝揍云链接](https://wwe.lanzous.com/b010bbe2f?key=123456) 密码：123456
 
 
 
