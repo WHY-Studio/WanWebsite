@@ -7,6 +7,7 @@
 5. [成品可执行文件](https://wan.lanzous.com/irw6xmxf4sh)
 6. -->
 1. [蓝揍云链接](https://wwe.lanzous.com/b010bbe2f?key=123456) 密码：123456
+2. [好用的话，记得赞助我们哦！](https://why-studio.tk/donateToUs/)
 
 
 
