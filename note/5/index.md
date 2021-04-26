@@ -1,5 +1,5 @@
 # 小万的云便条
-[资源链接](doc.docx)
+[资源链接](https://wan.lanzous.com/iyfNNojbooh)
 
 ----------
 
