@@ -1,6 +1,6 @@
 # 小万的云便条
-[资源链接](https://wan.lanzous.com/ioef0nexjyd)
-[PPT](https://wan.lanzous.com/iIWWQou3sej)
+1. [资源链接](https://wan.lanzous.com/ioef0nexjyd)
+2. [PPT](https://wan.lanzous.com/iIWWQou3sej)
 
 ----------
 
