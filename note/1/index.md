@@ -3,7 +3,8 @@
 2. [代码地址](/note/1/code)
 3. [代码图片地址](/note/1/code.png)
 4. [Python官网](https://python.org)
-5. [成品可执行文件](https://wan.lanzous.com/irw6xmxf4sh)
+5. [成品可执行文件](https://wan.lanzoui.com/irw6xmxf4sh)
+6. [论文.docx文件](https://wan.lanzoui.com/i4vffpx3t1g)
 
 
 -----------------------
